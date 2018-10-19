@@ -9,7 +9,7 @@ Most of these designs are from [Wes Bos](https://wesbos.com) with the exception 
 
 You are welcome to use these designs as you please - print your own, use the graphics on your blog, or put them on tshirts. 
 
-Most of the designs are done in Sketch, which is not really a good tool for designing print, but  ¯\_(ツ)_/¯.
+Most of the designs are done in Sketch, which is not really a good tool for designing print, but  ¯\\\_(ツ)_/¯.
 
 A link back to any of my stuff is appreciated but I realize you can't always do that. 
 
